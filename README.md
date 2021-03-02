@@ -7,4 +7,4 @@
 
 - 🌱 I’m currently learning **C#, SQL, Networking, PHP & small amounts of C++**
 
-- 🤡 Professional NotII / Gerrard Linden hater. Why? Because he's a pedophile who likes 12 year olds
+- 🤡 NotII is harmless (Elise who? Nichole who?) - https://imgur.com/KHFyyV7
